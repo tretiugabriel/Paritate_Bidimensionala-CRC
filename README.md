@@ -1,0 +1,1 @@
+# Paritate_Bidimensionala-CRC
